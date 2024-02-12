@@ -7,7 +7,7 @@ Push (slatt)
 Push (blatt)
 
 Uh, ridin' 'round town with the Draco, bih
-D-R-A-C-O, yeah (woo, woo)
+*D-R-A-C-O*, yeah (woo, woo)
 Ridin' 'round town with the Draco, bih
 D-R-A-C-O, yeah
 D-R-A-C-O (yeah), D-R-A-C-O (yeah)
