@@ -1,5 +1,5 @@
 [on that Time](https://genius.com/Playboi-carti-on-that-time-lyrics))
-Push up (woo) **asterisks**
+**push up (woo)**
 Push up, yeah (woo)
 Push up (what? Woo)
 Push (yeah)
