@@ -44,6 +44,6 @@ D-R-A-C-O, yeah (wah)
 Ridin' 'round town with the Draco, bih (Draco, Draco)
 D-R-A-C-O, yeah
 D-R-A-C-O (ridin' 'round), D-R-A-C-O (what? What? Yeah)
-D-R-A-C-O (woo, woo), D-R-A-C-O (woo, woo)
+**D-R-A-C-O (woo, woo), D-R-A-C-O (woo, woo)
 
 ![alt text](https://github.com/adam-p/markdown-here/raw/master/src/common/images/icon48.png "Logo Title Text 1")
