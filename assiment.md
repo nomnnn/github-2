@@ -12,6 +12,7 @@ Ridin' 'round town with the Draco, bih
 D-R-A-C-O, yeah
 D-R-A-C-O (yeah), D-R-A-C-O (yeah)
 D-R-A-C-O (yeah), D-R-A-C-O
+Alt-H2
 
 I got a Draco in my bookbag, lil' bih (yeah, woo)
 That motherfucker got a kickback on it (yeah, woo)
