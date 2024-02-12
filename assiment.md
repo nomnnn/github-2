@@ -1,11 +1,11 @@
 [on that Time](https://genius.com/Playboi-carti-on-that-time-lyrics))
-
 Push up (woo)
 Push up, yeah (woo)
 Push up (what? Woo)
 Push (yeah)
 Push (slatt)
 Push (blatt)
+
 Uh, ridin' 'round town with the Draco, bih
 D-R-A-C-O, yeah (woo, woo)
 Ridin' 'round town with the Draco, bih
